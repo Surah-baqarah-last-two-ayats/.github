@@ -117,7 +117,7 @@ For maximum benefit, recite them:
 
 ---
 
-## ❓ FAQs (SEO-Optimized)
+## ❓ FAQs
 
 ### Q1: Which ayats are the last two of Surah Baqarah?  
 They are Ayat **285 and 286**.
